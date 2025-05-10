@@ -1,3 +1,5 @@
+![WhatsApp Image 2025-05-10 at 06 27 28](https://github.com/user-attachments/assets/2e08dcbe-5325-496e-b610-949b2ea761b6)
+
 # 👋 Bonjour, je suis Franck BATTY !
 
 ## 💻 À propos de moi
